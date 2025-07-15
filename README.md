@@ -1,1 +1,0 @@
-# HydraSense AI Phase 1
